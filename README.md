@@ -5,3 +5,7 @@ conteúdo da 2º aula
 
 // fico chiq porem possuí erros de português e oque mais gostei foi em conhecer um pouco do colega
 [https://www.linkedin.com/in/c%C3%ADcero-borges-04953a24a]
+
+
+
+// Faltou uma foto kkkkk
